@@ -1,0 +1,2 @@
+# permatadoa
+blog tempat tuntunan
